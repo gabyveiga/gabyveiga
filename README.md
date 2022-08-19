@@ -1,0 +1,2 @@
+- 👋 oii me chamo gabrielly
+- 👀 estou cursando o ensino medio
